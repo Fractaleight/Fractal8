@@ -1,3 +1,5 @@
+Fractal 8 Update Announcement.
+
 We regret to inform you of a delay in the Fractal 8 project. Unfortunately, our primary communication channel, our Twitter account, was unexpectedly suspended, likely flagged as spam due to the high volume of engagement and interest from our community. We are actively working to resolve this issue, as it has significantly impacted our ability to connect with our supporters.
 
 In addition to this setback, Fractal’s recent performance challenges and our mint not reaching a sell-out have led us to reassess our approach. We remain fully committed to delivering both the artwork and token, albeit on a revised timeline. This is not an abandonment of our project; rather, it’s an adjustment to ensure we meet our community’s expectations effectively.
